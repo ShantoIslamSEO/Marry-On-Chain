@@ -1,0 +1,1 @@
+Marry On Chain is working to obtain legal recognition for blockchain-based marriages in various countries. While this process is ongoing, couples can still enjoy a symbolic <a href="https://marryonchain.com/">online marriage</a> with the potential for future legal recognition. Celebrate your love with Marry On Chain.
